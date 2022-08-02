@@ -1,1 +1,1 @@
-# Welcome to the funky zone, if you don't know how you got here well… I can't help with that (proceeds to fall down some stairs). This is a place will stuff will be maybe maybe not I don't know aka Just-a-place-for-all-my-stuff
+# Welcome to the funky zone, if you don't know how you got here well… I can't help with that (proceeds to fall down some stairs). This is a place will stuff will be maybe maybe not I don't know aka Just-a-place-for-some-stuff
